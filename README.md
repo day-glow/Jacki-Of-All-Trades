@@ -7,5 +7,4 @@ I love coding, spreading positivity and hearing feedback! Feel free to connect, 
 Culmination of personal projects and special interests in one place, hoping to spark inspiration in your work and daily lives!
 
 ## Let's Connect
-<a href="https://www.linkedin.com/in/jacki-yanamura/" rel="nofollow"></a> == $0
-
+(https://www.linkedin.com/in/jacki-yanamura/)
